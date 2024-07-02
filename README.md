@@ -1,1 +1,1 @@
-https://github.com/VSRIHARINATHAREDDY/Practise/upload
+https://github.com/VSRIHARINATHAREDDY/index.html
